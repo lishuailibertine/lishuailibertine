@@ -2,4 +2,4 @@
 
 ### Hello World 😁
 
-- 🍗 
+- 🍗 Pain makes you stronger. Tears makes you braver. Heartbreak makes you wiser. So thank the past for a better future.
